@@ -2,16 +2,22 @@
 
 **The 2025 Scotties Tournament of Hearts (STOH)** is set to captivate curling fans across Canada and beyond as it kicks off at the iconic Fort William Gardens in Thunder Bay, Ontario. This year’s tournament promises to be one of the most exciting yet, with 18 elite women’s curling teams vying for the coveted title. The big question on everyone’s mind: Can anyone dethrone the dominant Team Homan, led by skip Rachel Homan, who has been a force to reckon with in recent years?
 
-**WATCH: Scotties Curling Live Streaming Anywhere**
+✅No Hidden Charges✅
+
+[**⭕CLIC HERE TO WATCH: Scotties Curling LIVE Streaming Anywhere**](https://curling.fanfanatics.live/?refd_by=a2znow)
+
+[**⭕CLIC HERE TO WATCH: Scotties Curling LIVE Streaming Anywhere**](https://curling.fanfanatics.live/?refd_by=a2znow)
 
 The action begins on Friday, February 14, with the opening draw at 7 p.m. ET / 4 p.m. PT. Whether you’re a die-hard curling enthusiast or a casual fan, here’s everything you need to know about the 2025 Scotties Tournament of Hearts, including the schedule, how to watch, and where to catch all the live action.
+
+[![image](https://github.com/user-attachments/assets/312dcbeb-bf77-4b14-9e99-34a530a2bebc)](https://curling.fanfanatics.live/?refd_by=a2znow)
 
 2025 STOH Key Details
 What: Scotties Tournament of Hearts (STOH)
 When: February 14–23, 2025
 Where: Fort William Gardens, Thunder Bay, Ontario
 TV Channel: **TSN** (Canada)
-Live Streaming: **Curling World OTT (global)**
+Live Streaming: [**Curling World OTT (global)**](https://curling.fanfanatics.live/?refd_by=a2znow)
 The 2025 Scotties will feature 18 teams divided into two pools of nine. Each team will compete in a round-robin format within their pool, with the top three teams from each pool advancing to the playoffs. The playoff stage includes the Page Playoff system, culminating in the championship final on Sunday, February 23.
 
 Where to Watch Scotties Tournament of Hearts on TV
@@ -19,7 +25,7 @@ How to watch Scotties Curling in Canada
 
 As the official broadcaster, TSN will provide comprehensive coverage of the tournament. Fans can watch every draw live on TSN’s TV channels or stream the action online via the TSN app or website.
 
-WATCH: **Scotties Curling Live Streaming Anywhere**
+WATCH: [**Scotties Curling Live Streaming Anywhere**](https://curling.fanfanatics.live/?refd_by=a2znow)
 
 How Can I watch Scotties Tournament of Hearts in US
 
